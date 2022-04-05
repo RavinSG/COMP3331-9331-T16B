@@ -14,3 +14,6 @@ Link for recording - [Share Point](https://unsw.sharepoint.com/:v:/s/COMP3331933
 
 ## Week 7
 [Share Point](https://unsw.sharepoint.com/:v:/s/COMP33319331-Tutoring/ESpBXjIANFxMkuM5lRb7JZABhextRrybY3JmD6NF0-WzEg?e=gmTcsN)
+
+## Week 8
+[Share Point](https://unsw.sharepoint.com/:v:/s/COMP33319331-Tutoring/EQfZP37XYNRLm_I6Dgc-qgwBkwKtK3RHPiwlVup1ZSlzPQ?e=7IjST4)
