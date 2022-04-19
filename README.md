@@ -20,3 +20,8 @@ Link for recording - [Share Point](https://unsw.sharepoint.com/:v:/s/COMP3331933
 
 ## Week 9
 [Share Point](https://unsw.sharepoint.com/:v:/s/COMP33319331-Tutoring/EQvFKtCZauVLhd149mjWqRUB0TicdYmctuaVC4mxYTS0Kg?e=biAM4f)
+
+## Week 10
+[Share Point](https://unsw.sharepoint.com/:v:/s/COMP33319331-Tutoring/Ec5z7vGRLOVDgOTxOvxffu8Bc1ZjWnYfq0iogk-bCtB7oA?e=HBlnnd)
+
+![good_luck!](https://user-images.githubusercontent.com/33351046/163948348-9111371d-7adc-4323-a0d4-e387f6f8658a.jpg)
